@@ -5,4 +5,4 @@
 - 💬 I’m looking for help with which problems and amends to the current analyzing models and tools are deserved efforts
 - 📫 How to reach me: scilavisher@gmail.com
 - 😄 Pronouns: Bro
-- ⚡ Fun fact: My profile photo is 庵野秀明／あんのひであき Anno Hideaki；Will I get sued?
+- ⚡ Fun fact: My profile photo is 庵野秀明／あんのひであき Anno Hideaki
